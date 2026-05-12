@@ -1,4 +1,4 @@
-#  
+#  Experience life together rp like never before with no-ban Script for life together rp, the #1 Script. Includes one-hit kill and undetectable for
 
 
 
